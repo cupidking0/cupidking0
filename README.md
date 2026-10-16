@@ -1,6 +1,8 @@
-![Image](https://media.discordapp.net/attachments/1090237655725387829/1560501973562691674/Untitled12_20261016115729.png?ex=6ad2f237&is=6ad1a0b7&hm=7c30d17e53524974e0a4178cce4f9aaf94740c7cf4ca6d68cdeb87d42c41c668&=&format=webp&quality=lossless)
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1090237655725387829/1560355824474525806/Untitled13_20261016021641.png?ex=6ad26a1a&is=6ad1189a&hm=8bfa7ca77476edf88fa2ce4aa6d88cc0d4adfa77192e887f2d8b453523f5b9d1&=&format=webp&quality=lossless" alt="Alt Text" width="500">
+  <img src="https://media.discordapp.net/attachments/1090237655725387829/1560507874755481630/Untitled12_20261016122047.png?ex=6ad2f7b6&is=6ad1a636&hm=88378f66c4c201b833e6361c21a7f70939c04d344afe84f7ff61b3bb244bf7f1&=&format=webp&quality=lossless" alt="Alt Text" width="800">
+</p>
+<p align="center">
+  <img src="https://media.discordapp.net/attachments/1090237655725387829/1560355824474525806/Untitled13_20261016021641.png?ex=6ad26a1a&is=6ad1189a&hm=8bfa7ca77476edf88fa2ce4aa6d88cc0d4adfa77192e887f2d8b453523f5b9d1&=&format=webp&quality=lossless" alt="Alt Text" width="400">
 </p>
 <p align="center">· · ───────────────────────── ⊱⋅⋆·✦·⋆⋅⊰ ───────────────────────── · ·</p>
 <div align="center">
@@ -34,3 +36,11 @@
 <a href="https://limbussting.carrd.co">
   <img src="https://media.discordapp.net/attachments/1090237655725387829/1560531852219912233/Untitled16_20261016133531.png?ex=6ad30e0a&is=6ad1bc8a&hm=458825054d12eff18ca3bbbda366d29d7e2c508d36724ca3fe23264c73c4f43d&=&format=webp&quality=lossless" width="150""‎>‎ ‎
 </a>
+       ⋅⋆⛓⋅⋆⩇⩇:⩇⩇⋅⋆⛓⋅⋆
+<a href="https://edwyngates0.straw.page">
+  <img src="https://media.discordapp.net/attachments/1090237655725387829/1560608671770214470/Untitled17_20261016140730.png?ex=6ad35596&is=6ad20416&hm=ae912c15da739e30e065c85274b21553257f5b88d029a19362f216a064cab5e6&=&format=webp&quality=lossless" width="150"">
+ </a> 
+
+<p align="center">
+  <img src="https://media.discordapp.net/attachments/1090237655725387829/1560507874755481630/Untitled12_20261016122047.png?ex=6ad2f7b6&is=6ad1a636&hm=88378f66c4c201b833e6361c21a7f70939c04d344afe84f7ff61b3bb244bf7f1&=&format=webp&quality=lossless" alt="Alt Text" width="800">
+</p>
