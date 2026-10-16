@@ -17,7 +17,7 @@
     </td>
     <td>
 
-⫘⫘⫘⫘⫘⫘ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&size=25&duration=900&pause=1000&color=731111&repeat=false&width=110&lines=Brutal+Bull)](https://git.io/typing-svg) ⫘⫘⫘⫘⫘⫘
+⫘⫘⫘⫘⫘⫘ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&size=25&duration=4000&pause=1000&color=731111&repeat=false&width=110&lines=Brutal+Bull)](https://git.io/typing-svg) ⫘⫘⫘⫘⫘⫘
 
 ➤ Edwyn ﹒Eddie ۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱𓂃 ࣪˖ ִֶָ 𓈈
      <br>
@@ -31,4 +31,6 @@
 </table>
 
 <p align="center">· · ───────────────────────── ⊱⋅⋆·✦·⋆⋅⊰ ───────────────────────── · ·</p>
-
+<a href="https://limbussting.carrd.co">
+  <img src="https://media.discordapp.net/attachments/1090237655725387829/1560531852219912233/Untitled16_20261016133531.png?ex=6ad30e0a&is=6ad1bc8a&hm=458825054d12eff18ca3bbbda366d29d7e2c508d36724ca3fe23264c73c4f43d&=&format=webp&quality=lossless" width="150""‎>‎ ‎
+</a>
